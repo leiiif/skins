@@ -1,2 +1,4 @@
 # skins
-https://github.com/leiiif/skins
+
+## [kablaze edit](http://www.mediafire.com/file/wszvddvim9qrzez/kablaze+edit.osk/file)
+
