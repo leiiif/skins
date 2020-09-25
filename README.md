@@ -10,3 +10,10 @@
 
 # [zirba v3](http://www.mediafire.com/file/079tpy0u65usaek/zirba+v3.osk/file)
 ![](https://osu.ppy.sh/ss/15594329/542d)
+
+
+# [cuon and azure](http://www.mediafire.com/file/u3bsooqck3y2a5a/cuon+and+azure.osk/file)
+![](https://osu.ppy.sh/ss/15594342/1f25)
+
+
+# [
