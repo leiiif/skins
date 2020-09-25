@@ -2,7 +2,11 @@
 
 # [kablaze edit](http://www.mediafire.com/file/wszvddvim9qrzez/kablaze+edit.osk/file)
 ![](https://osu.ppy.sh/ss/15594314/0c62)
+
+
 # [kantoku edit](http://www.mediafire.com/file/uuoyzw82kr0fsnb/kantoku+edit.osk/file)
 ![](https://osu.ppy.sh/ss/15594325/b81f)
-#[zirba v3](http://www.mediafire.com/file/079tpy0u65usaek/zirba+v3.osk/file)
+
+
+# [zirba v3](http://www.mediafire.com/file/079tpy0u65usaek/zirba+v3.osk/file)
 ![](https://osu.ppy.sh/ss/15594329/542d)
