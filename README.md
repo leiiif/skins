@@ -18,3 +18,7 @@
 
 # [aesthetic](http://www.mediafire.com/file/a9kzr1aoaqq22vf/aesthethic.osk/file)
 ![](https://osu.ppy.sh/ss/15594346/0904)
+
+
+# [azr8+gayz](http://www.mediafire.com/file/rok20sxcqv0gq9w/azr8+gayz.osk/file)
+![](https://osu.ppy.sh/ss/15594349/3f6c)
