@@ -40,3 +40,6 @@
 
 # [barbara 1.0](http://www.mediafire.com/file/i7xrvic52qecnx2/-_%2521_%252B_barbara_1.0.osk/file)
 ![](https://osu.ppy.sh/ss/15759697/1325)
+
+# [keqing 1.0](http://www.mediafire.com/file/t3mu5z0yranfa83/-_%2521_%252B_keqing_1.0.osk/file)
+![](https://i.imgur.com/jwPV3pZ.jpeg)
