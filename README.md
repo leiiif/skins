@@ -43,3 +43,13 @@
 
 # [keqing 1.0](http://www.mediafire.com/file/t3mu5z0yranfa83/-_%2521_%252B_keqing_1.0.osk/file)
 ![](https://i.imgur.com/jwPV3pZ.jpeg)
+
+# [aristia edit](http://www.mediafire.com/file/y0wyhhea1k41o9r/Aristia%2528Edit%2529%252Btrail.osk/file)
+![](https://osu.ppy.sh/ss/15810137/366c)
+
+# [seoul+panmimi](http://www.mediafire.com/file/l33aei97vpnyx1z/Seoul-Panmimi.osk/file)
+![](https://osu.ppy.sh/ss/15810152/bf82)
+
+# [mathi v2](http://www.mediafire.com/file/yh98hqkom7xz7hp/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
+![](https://osu.ppy.sh/ss/15810141/8404)
+
